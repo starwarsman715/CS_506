@@ -1,1 +1,1 @@
-# CS_506
+# starwarsman715.github.io
